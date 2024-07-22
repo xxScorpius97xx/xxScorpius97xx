@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @xxScorpius97xx aka MaV, an evolving noob ☺️
+👋 Hi
 - 👀 I’m interested in secret
 - 🌱 I’m currently learning secret
 - 💞️ I’m looking to collaborate on secret
