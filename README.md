@@ -1,11 +1,3 @@
-👋 Hi
-- 👀 I’m interested in secret
-- 🌱 I’m currently learning secret
-- 💞️ I’m looking to collaborate on secret
-- 📫 How to reach me secret
-- 😄 Pronouns: secret
-- ⚡ Fun fact: secret
-
 ⭐⭐⛓️⛓️⛓️⭐⭐
 
 <!---
